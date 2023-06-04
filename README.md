@@ -1,1 +1,1 @@
-# -G-
+ĐÁ GÀ - Đá gà là một môn thể thao giải trí, 2 chú gà được tuyển chọn kỹ càng và tiến hành thi đấu với nhau. Những tình huống đá đẹp mắt của những chủ chiến kê luôn mang lại cho người chơi cảm giác phấn khích khi theo dõi - https://hi88c.us/da-ga/
